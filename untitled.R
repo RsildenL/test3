@@ -3,14 +3,5 @@ jfpe
 nalæmæ
 
 
-rhwreijh
+Heihei
 
-
-Velkommen Edvard!
-    @ededding
-
-
-## R Markdown
-
-
-Edvards change 
